@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Manoja Pinnawala
-- 👀 I’m interested in searching new knowledge
+- 👀 I’m interested in learn new things
 - 🌱 I’m currently learning Geographical Information Science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
